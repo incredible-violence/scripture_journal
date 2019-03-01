@@ -1,1 +1,0 @@
-# scripture_journal
